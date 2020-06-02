@@ -1,1 +1,1 @@
-https://willynogueira.github.io/wi/
+https://willynogueira.github.io/wn
